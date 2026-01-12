@@ -1,4 +1,4 @@
-# mohamedbouslama.github.io
+# AmeliaPilou.github.io
 Portfolio de Mohamed-Amine Bouslama, étudiant en BTS SIO
 # Portfolio de Amélie Pilou
 
